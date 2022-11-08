@@ -1,0 +1,1 @@
+Production vehicles or production cars are mass-produced identical models, offered for sale to the public, and able to be legally driven on public roads (street legal). Legislation and other rules further define the production vehicle within particular countries or uses.
